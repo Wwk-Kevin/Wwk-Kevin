@@ -1,8 +1,3 @@
-- 👋 Hi, I’m @Wwk-Kevin
-- 👀 I’m interested in gaming
-- 🌱 I’m currently learning multi-languages
-- 💞️ I’m looking to collaborate on programing
-- 📫 How to reach me: visit https://wk239.com/
 - 🇨🇳 [ZH-CN]
 - 🥰 呦！这里是 @Wwk-Kevin.
 - 🎮 喜欢玩玩游戏(主要是主机) =w=
