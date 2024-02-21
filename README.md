@@ -12,7 +12,6 @@
 - 🌱 I'm a liberal arts student who likes IT, but since I've been learning liberal art subjects for too long, I've forgotten and haven't learned anything new of it for a long time…
 - 🌏 How to reach me (long-term maintenancing, opening time to be determined): visit https://wk239.com/
 - ✨
-- 
 - 🇯🇵 [JA-JP]
 - 🥰 Ciallo～(∠・ω< )⌒☆ @Wwk-Kevinです。
 - 🎮 ゲーム大好き(主にコンソール)！
